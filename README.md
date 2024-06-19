@@ -2,6 +2,6 @@
 
 Meu nome é Rômulo
 
-### SE QUISER FALAR COMICO NÃO ESTAREI AQUI✌
+### SE QUISER FALAR COMIGO NÃO ESTAREI AQUI✌
 
 ![](https://media.tenor.com/UyPAkpXRRNIAAAAM/lr-agl-ssb-vegito-goku.gif)
