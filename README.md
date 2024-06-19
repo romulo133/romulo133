@@ -11,4 +11,4 @@ Meu nome é Rômulo
 00001108858661sp@al.educacao.sp.gov.br
 
 
-![viadagem](https://tenor.com/pt-BR/view/naruto-and-kurama-gif-25727692)
+![](https://tenor.com/pt-BR/view/naruto-and-kurama-gif-25727692)
